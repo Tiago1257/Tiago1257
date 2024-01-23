@@ -1,2 +1,1 @@
-hi i exist\n
-also known as 1257Plays
+hi, i certainly exist - also known as 1257Plays
